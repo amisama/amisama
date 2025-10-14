@@ -2,7 +2,7 @@
 
 > "Motivasi tinggi. Konsistensi? Nanti dulu."
 
-## 👋 Halo, gue [nama kamu]
+## 👋 anying 
 
 - 🕹️ Gamer full time, coder part-time
 - ☕ Wibu nyambi debug bug sendiri
